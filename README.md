@@ -2,28 +2,30 @@
 1. Can you earn gems in Brawl Stars for free?
 Yes, you can earn free gems in Brawl Stars by opening Brawl Pass reward tiers. Both the free and premium tracks offer gems as rewards.
 
-2. What is the Brawl Pass, and how does it help in getting gems?
+GET LINK = https://allresources.xyz/brawlstars.html/
+
+3. What is the Brawl Pass, and how does it help in getting gems?
 The Brawl Pass is a reward system in Brawl Stars. The free track (available to all players) occasionally provides gems at specific tiers. The premium track requires a purchase but offers more frequent gem rewards.
 
-3. Are there any in-game events that give free gems?
+4. Are there any in-game events that give free gems?
 While Brawl Stars does not host events that directly award gems, participating in events like Special Challenges or Seasonal Events can help you progress through the Brawl Pass, indirectly earning gems.
 
-4. Can completing quests help in earning gems?
+5. Can completing quests help in earning gems?
 Yes, completing daily and seasonal quests contributes to progressing in the Brawl Pass, which can unlock gem rewards.
 
-5. Are there third-party apps or generators to get free gems?
+6. Are there third-party apps or generators to get free gems?
 No, third-party apps or gem generators claiming to provide free gems are scams. They can compromise your account or personal data. Always stick to official in-game methods.
 
-6. Is it possible to get gems through giveaways?
+7. Is it possible to get gems through giveaways?
 Yes, some official Supercell creators or YouTubers occasionally host giveaways. Always verify the source to ensure legitimacy.
 
-7. How many free gems can I earn in a season?
+8. How many free gems can I earn in a season?
 Typically, you can earn 90 gems per season from the free track of the Brawl Pass. This amount may vary based on the game updates.
 
-8. Can I get free gems from Trophy Road?
+9. Can I get free gems from Trophy Road?
 No, gems are not available as rewards on the Trophy Road. However, Trophy Road rewards include other valuable resources like Brawlers, coins, and boxes.
 
-9. Are there alternative ways to save gems for free?
+10. Are there alternative ways to save gems for free?
 To maximize your gems:
 
 Avoid spending them on unnecessary items like Token Doublers or skins.
